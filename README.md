@@ -1,1 +1,1 @@
-#  https://brunoprojetos2389.github.io/Tec/Tec/
+#  https://brunoprojetos2389.github.io/Tec
